@@ -1,4 +1,4 @@
 # heyitshuso.github.io
 
 
-Hey huseyin from Istanbul.
+Hey it's huseyin from Istanbul.
